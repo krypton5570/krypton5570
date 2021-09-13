@@ -1,1 +1,2 @@
-Just a random guy who has been learning on how to code in python for about 2-3 months :)
+❓ - Just a random 14 year old kid that has been learning Python for about 2-3 months!
+❗ - You can contact me by adding my discord Krypton#5570
